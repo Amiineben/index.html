@@ -6,9 +6,6 @@
   🎯 Bilingual: English (B1), French (A2)
 </p>
 
-<p align="center">
-  <img src="WhatsApp Image 2025-03-13 at 05.26.53_3ffb2e66.jpg" alt="Amine's Avatar" width="160" style="border-radius: 50%;" />
-</p>
 
 ---
 
